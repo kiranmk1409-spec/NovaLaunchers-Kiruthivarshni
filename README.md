@@ -1,1 +1,1 @@
-# Nova-Launchers-TL-Name--Kiruthivarshni
+# Nova-Launchers-Kiruthivarshni
